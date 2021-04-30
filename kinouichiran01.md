@@ -1,1 +1,0 @@
-kinouichiran01.md 
